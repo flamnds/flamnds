@@ -1,7 +1,7 @@
 ### Oii, Flavia aqui!👩🏽‍🚀
 
 - 🚀 Empresária
-- 💻 Estudando UI Design
+- 🌔 Estudando UI Design
 
 <div align="center">
   <a href="https://github.com/flamnds">
